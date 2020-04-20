@@ -1,1 +1,0 @@
-# skillup-hw-02
